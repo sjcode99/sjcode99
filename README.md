@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **career.surajcse@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-x8DN4o3wwt-PfA9v5QxjB8nt0jVhWgA/view?usp=drive_link](https://drive.google.com/file/d/1-x8DN4o3wwt-PfA9v5QxjB8nt0jVhWgA/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-x8DN4o3wwt-PfA9v5QxjB8nt0jVhWgA/view?usp=drive_link](https://drive.google.com/file/d/1n7wFKBExtX9tYHfeLZjQ6rMN_8o5n4do/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

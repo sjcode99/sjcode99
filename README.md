@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **career.surajcse@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iHYZmsr9tRmiI8tlYTOjtZAECCp2THLK/view?usp=drive_link](https://drive.google.com/file/d/1iHYZmsr9tRmiI8tlYTOjtZAECCp2THLK/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1m6TK3Oq2Dj28tZJGnBr10dCvvPIQA5hM/view?usp=sharing)
 
 [![An image of @sjcode99's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/sjcode99)](https://holopin.io/@sjcode99)
 

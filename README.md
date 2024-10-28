@@ -1,11 +1,11 @@
 
-<h1 align="center">Hi 👋, I'm Suraj lal</h1>
+<h1 align="center">Hi 👋, I'm Suraj Lal</h1>
 <h3 align="center">A passionate MERN Stack developer from India</h3>
 
 [![An image of @sjcode99's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/sjcode99)](https://holopin.io/@sjcode99)
 
 
-# 💻 About Me:
+# 💫 About Me:
 - 👨‍💻 Currently learning Blockchain Technology
   
 - 📫 How to reach me **career.surajcse@gmail.com**
